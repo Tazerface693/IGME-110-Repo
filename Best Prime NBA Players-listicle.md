@@ -13,5 +13,7 @@
 8. 4
 9. 6
 10. Lance Stephenson
-    [Lance Stephenson](https://www.youtube.com/watch?v=8ZzhwP_4PR4)
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Lance_Stephenson_2018.jpg/800px-Lance_Stephenson_2018.jpg)
+
+    [Lance Stephenson]
+    (https://www.youtube.com/watch?v=8ZzhwP_4PR4)
+    ![Born Ready](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Lance_Stephenson_2018.jpg/800px-Lance_Stephenson_2018.jpg)
