@@ -1,8 +1,7 @@
-# My List of the Top 10 Most Entertaining Players to watch in their prime.
----
 
-## Top 10 numbers from 1-10
 
+# The Top 10 Most Entertaining Players to Watch In Their Prime 
+--- 
 1. 5
 2. 3
 3. 7
