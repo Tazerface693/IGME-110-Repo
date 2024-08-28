@@ -17,7 +17,7 @@
     [Tracy Lamar McGrady Jr., nicknamed T-Mac, is an American former professional basketball player, best known for his career in the National Basketball Association. McGrady is a seven-time NBA All-Star, seven-time All-NBA selection, two-time NBA scoring champion, and winner of the NBA Most Improved Player Award in 2001]
    (https://www.youtube.com/watch?v=aEqOlYjbaQw)
 
-   ![The Man](https://images.footballfanatics.com/orlando-magic/tracy-mcgrady-orlando-magic-autographed-8-x-10-two-handed-dunk-vs-new-jersey-nets-photograph_pi4122000_ff_4122182-b2ec6d62abad06a3df19_full.jpg?_hv=2&w=900)
+   ![The Man](https://images2.minutemediacdn.com/image/upload/c_fill,w_720,ar_16:9,f_auto,q_auto,g_auto/shape/cover/sport/d4627c41abd99f569b157d269181284b7029b07099e76992c8f1d2a2839f0828.jpg)
    
 11. ### Lance Stephenson (Born Ready)
 
