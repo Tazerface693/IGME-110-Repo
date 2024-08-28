@@ -6,7 +6,7 @@
 
 [Oh my god, this man was crazy back in 2017. I swear, this guy was one of the craziest players to watch. It's inhuman how good he was.](https://www.youtube.com/watch?v=8oXbCUdVU9Y)
 
-![Wow](https://a.espncdn.com/i/infographics/20161024_westbrook/jordan_stats8.jpg)
+![Wow](https://a.espncdn.com/i/infographics/20161024_westbrook/jordan_stats8.jpg) ![](https://i.redd.it/91tyxzrrkry51.jpg)
    
 2. 3
 3. 7
