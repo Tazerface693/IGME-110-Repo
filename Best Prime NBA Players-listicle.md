@@ -9,7 +9,7 @@
 ![Wow](https://a.espncdn.com/i/infographics/20161024_westbrook/jordan_stats8.jpg) ![](https://i.redd.it/91tyxzrrkry51.jpg)
 ---   
 2. ### James Harden (The Beard)
-   [This man was insane back in 2019, he had a stretch where he had an average of 38 points per game. He might be trash on defense, but he was going ham back in the day.(https://www.youtube.com/watch?v=rHG4uHOY5SM)
+   [This man was insane back in 2019, he had a stretch where he had an average of 38 points per game. He might be trash on defense, but he was going ham back in the day.](https://www.youtube.com/watch?v=rHG4uHOY5SM)
 ![](https://pbs.twimg.com/media/EKrKWo9W4AAOiNz.jpg)
 ---
 3. ### Lebron James (Miami) (King James, Captain LeMerica, LePookie)
