@@ -10,10 +10,15 @@
 ---   
 2. ### James Harden (The Beard)
 
-[This man was insane back in 2019, he had a stretch where he had an average of 38 points per game. He might be trash on defense, but he was going ham back in the day.](https://www.youtube.com/watch?v=rHG4uHOY5SM)
+[This man was insane back in 2019, he had a stretch where he had an average of 38 points per game. He might be trash on defense, but he was going ham back in the day. (https://www.youtube.com/watch?v=rHG4uHOY5SM)
 ![](https://pbs.twimg.com/media/EKrKWo9W4AAOiNz.jpg)
 ---
-4. 7
+3. ### Lebron James (King James, Captain LeMerica, LePookie)
+
+   [Miami Heat Lebron was a monster. He took no prisoners. He's like a Greek God in human form.](https://www.youtube.com/watch?v=qfOvIsHdMVk)
+   ![](https://www.jsonline.com/gcdn/-mm-/dfff082d1e4931b30569ae37195b6862a6a8ef8a/c=0-361-2915-2008/local/-/media/2018/05/22/USATODAY/USATODAY/636625868623447717-AP-APTOPIX-Heat-Bucks-Basketball-39255807.JPG)
+)
+)
 ---
 6. 9
 ---
