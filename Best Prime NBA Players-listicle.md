@@ -24,7 +24,7 @@
 ---
 5. ### Kevin Durant (Easy Money Sniper, Durantula, The Slim Reaper)
    [This dude was crazy. He's built like slenderman, he won 2 rings, and he's one of the best to ever do it. He's just got to make sure he wears the right shoes. (IYKYK)](https://www.youtube.com/watch?v=tTsXG8LXSF8)
-   ![https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg]
+   ![](https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg)
 ---
 10. 2
 ---
