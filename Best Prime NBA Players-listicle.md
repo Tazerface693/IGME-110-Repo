@@ -10,7 +10,7 @@
 
 <a href="https://www.youtube.com/watch?v=8oXbCUdVU9Y">This man was inhuman back in the day</a>
 
-<a href="https://a.espncdn.com/i/infographics/20161024_westbrook/jordan_stats8.jpg) ![](https://i.redd.it/91tyxzrrkry51.jpg"></a>
+<a href="https://a.espncdn.com/i/infographics/20161024_westbrook/jordan_stats8.jpg"></a>
 ---   
 <li><h3>James Harden (The Beard)</h3></li>
    [This man was insane back in 2019, he had a stretch where he had an average of 38 points per game. He might be trash on defense, but he was going ham back in the day.]
