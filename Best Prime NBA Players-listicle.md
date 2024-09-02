@@ -1,8 +1,8 @@
 
 
-# The Top 10 Most Entertaining Players to Watch In Their Prime 
+<h1>The Top 10 Most Entertaining Players to Watch In Their Prime</h1>
 --- 
-1. ### Russell Westbrook (The Brodie, Mr Triple-Double, Westbrick)
+1. <h3>Russell Westbrook (The Brodie, Mr Triple-Double, Westbrick)</h3>
 
 [Oh my god, this man was crazy back in 2017. I swear, this guy was one of the craziest players to watch. It's inhuman how good he was.](https://www.youtube.com/watch?v=8oXbCUdVU9Y)
 
