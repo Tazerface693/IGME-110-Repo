@@ -38,8 +38,8 @@
    <a href="https://upload.wikimedia.org/wikipedia/commons/0/08/Kyrie_Irving_%2830548520130%29.jpg"></a>
 ---
 <li><h3>Ja Morant (Kevin Morant, G12, Theres a parade in my city)</h3></li>
-   <a href="https://www.youtube.com/watch?v=ARK5aoKBIw0">[Absolutely Unhinged Dunker.]</a>
-   < a href ="https://upload.wikimedia.org/wikipedia/commons/a/a1/Ja_Morant_2021.jpg"></a>
+   <a href="https://www.youtube.com/watch?v=ARK5aoKBIw0">Absolutely Unhinged Dunker.</a>
+   <a href="https://upload.wikimedia.org/wikipedia/commons/a/a1/Ja_Morant_2021.jpg"></a>
 ---
 <li><h3>Dwyane Wade (Flash)</h3></li>
 
@@ -50,8 +50,8 @@
 <li><h3>Tracy MacGrady (T-Mac)</h3></li>
 
 
-   <a href="https://www.youtube.com/watch?v=aEqOlYjbaQw">[Tracy Lamar McGrady Jr., nicknamed T-Mac, is an American former professional basketball player, best known for his career in the National Basketball Association. McGrady is a seven-time NBA All-Star, seven-time All-NBA selection, two-time NBA scoring champion, and winner of the NBA Most Improved Player Award in 2001]</a>
-   
+<a href="https://www.youtube.com/watch?v=aEqOlYjbaQw">[Tracy Lamar McGrady Jr., nicknamed T-Mac, is an American former professional basketball player, best known for his career in the National Basketball Association. McGrady is a seven-time NBA All-Star, seven-time All-NBA selection, two-time NBA scoring champion, and winner of the NBA Most Improved Player Award in 2001]</a>
+
 <a href="https://images2.minutemediacdn.com/image/upload/c_fill,w_720,ar_16:9,f_auto,q_auto,g_auto/shape/cover/sport/d4627c41abd99f569b157d269181284b7029b07099e76992c8f1d2a2839f0828.jpg">The man</a>
 ---   
 <li><h3>Lance Stephenson (Born Ready)</h3></li>
