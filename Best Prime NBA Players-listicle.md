@@ -26,36 +26,36 @@
 ---
 <li><h3>Shaquille O'Neal (Shaq Daddy, Diesel)</h3></li>
    
-   <a href="(https://www.youtube.com/watch?v=3VlMSo7AXow&t=40s">[This man is a beast. He just dunked on everyone, and went insane. Anytime someone went to block him, all they would get is all 345 pounds and 7' 4" of him in their face, it's disgusting.]</a>
+   <a href="https://www.youtube.com/watch?v=3VlMSo7AXow&t=40s">[This man is a beast. He just dunked on everyone, and went insane. Anytime someone went to block him, all they would get is all 345 pounds and 7' 4" of him in their face, it's disgusting.]</a>
 <a href="https://pbs.twimg.com/media/F3cI7-rXUAE989L.jpg"></a>
 ---
 <li><h3>Kevin Durant (Easy Money Sniper, Durantula, The Slim Reaper)</h3></li>
-   [This dude was crazy. He's built like slenderman, he won 2 rings, and he's one of the best to ever do it. He's just got to make sure he wears the right shoes. (IYKYK)](https://www.youtube.com/watch?v=tTsXG8LXSF8)
+   <a href="https://www.youtube.com/watch?v=tTsXG8LXSF8">[This dude was crazy. He's built like slenderman, he won 2 rings, and he's one of the best to ever do it. He's just got to make sure he wears the right shoes. (IYKYK)]</a>
    ![](https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg)
 ---
 <li><h3>Kyrie Irving (Uncle Drew, Ankletaker, World B. Flat, Kai)</h3></li>
-   [Absolutely impeccable handles. This is what I dream of achieving someday.](https://www.youtube.com/watch?v=ZNZq76uKz8I)
-   ![](https://upload.wikimedia.org/wikipedia/commons/0/08/Kyrie_Irving_%2830548520130%29.jpg)
+   <a href="(https://www.youtube.com/watch?v=ZNZq76uKz8I">Absolutely impeccable handles. This is what I dream of achieving someday.]</a>
+   <a href="https://upload.wikimedia.org/wikipedia/commons/0/08/Kyrie_Irving_%2830548520130%29.jpg"></a>
 ---
 <li><h3>Ja Morant (Kevin Morant, G12, Theres a parade in my city)</h3></li>
-   [Absolutely Unhinged Dunker.](https://www.youtube.com/watch?v=ARK5aoKBIw0)
-   ![](https://upload.wikimedia.org/wikipedia/commons/a/a1/Ja_Morant_2021.jpg)
+   <a href="https://www.youtube.com/watch?v=ARK5aoKBIw0">[Absolutely Unhinged Dunker.]</a>
+   < a href ="https://upload.wikimedia.org/wikipedia/commons/a/a1/Ja_Morant_2021.jpg"></a>
 ---
 <li><h3>Dwyane Wade (Flash)</h3></li>
 
-   [Probably one of the best shooting guards this side of the Mississipi, but he was crazy. Him and Bron went Nasty. ](https://www.youtube.com/watch?v=dU3OFJad0X8)
-   See Lebron for Dwyane Wade(He is Number 3)
+   <a href="https://www.youtube.com/watch?v=dU3OFJad0X8">[Probably one of the best shooting guards this side of the Mississipi, but he was crazy. Him and Bron went Nasty. ]</a>
+   <h3>See Lebron for Dwyane Wade(He is Number 3)</h3>
 ---
 
 <li><h3>Tracy MacGrady (T-Mac)</h3></li>
 
 
-   [Tracy Lamar McGrady Jr., nicknamed T-Mac, is an American former professional basketball player, best known for his career in the National Basketball Association. McGrady is a seven-time NBA All-Star, seven-time All-NBA selection, two-time NBA scoring champion, and winner of the NBA Most Improved Player Award in 2001](https://www.youtube.com/watch?v=aEqOlYjbaQw)
-
-   ![The Man](https://images2.minutemediacdn.com/image/upload/c_fill,w_720,ar_16:9,f_auto,q_auto,g_auto/shape/cover/sport/d4627c41abd99f569b157d269181284b7029b07099e76992c8f1d2a2839f0828.jpg)
+   <a href="https://www.youtube.com/watch?v=aEqOlYjbaQw">[Tracy Lamar McGrady Jr., nicknamed T-Mac, is an American former professional basketball player, best known for his career in the National Basketball Association. McGrady is a seven-time NBA All-Star, seven-time All-NBA selection, two-time NBA scoring champion, and winner of the NBA Most Improved Player Award in 2001]</a>
+   
+<a href="https://images2.minutemediacdn.com/image/upload/c_fill,w_720,ar_16:9,f_auto,q_auto,g_auto/shape/cover/sport/d4627c41abd99f569b157d269181284b7029b07099e76992c8f1d2a2839f0828.jpg">The man</a>
 ---   
 <li><h3>Lance Stephenson (Born Ready)</h3></li>
 
- [He's like a 99 OVR in 2k, but when your little sibling plays](https://www.youtube.com/watch?v=8ZzhwP_4PR4)
+ <a href="https://www.youtube.com/watch?v=8ZzhwP_4PR4">[He's like a 99 OVR in 2k, but when your little sibling plays]</a>
 
- ![Born Ready](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Lance_Stephenson_2018.jpg/800px-Lance_Stephenson_2018.jpg)
+ <a href="https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Lance_Stephenson_2018.jpg/800px-Lance_Stephenson_2018.jpg"></a>
