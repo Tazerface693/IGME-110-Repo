@@ -34,7 +34,7 @@
    ![](https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg)
 ---
 <li><h3>Kyrie Irving (Uncle Drew, Ankletaker, World B. Flat, Kai)</h3></li>
-   <a href="(https://www.youtube.com/watch?v=ZNZq76uKz8I">Absolutely impeccable handles. This is what I dream of achieving someday.]</a>
+   <a href="(https://www.youtube.com/watch?v=ZNZq76uKz8I">Absolutely impeccable handles. This is what I dream of achieving someday.</a>
    <a href="https://upload.wikimedia.org/wikipedia/commons/0/08/Kyrie_Irving_%2830548520130%29.jpg"></a>
 ---
 <li><h3>Ja Morant (Kevin Morant, G12, Theres a parade in my city)</h3></li>
