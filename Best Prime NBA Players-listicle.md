@@ -26,12 +26,12 @@
 ---
 <li><h3>Shaquille O'Neal (Shaq Daddy, Diesel)</h3></li>
    
-   <a href="https://www.youtube.com/watch?v=3VlMSo7AXow&t=40s">[This man is a beast. He just dunked on everyone, and went insane. Anytime someone went to block him, all they would get is all 345 pounds and 7' 4" of him in their face, it's disgusting.]</a>
+   <a href="https://www.youtube.com/watch?v=3VlMSo7AXow&t=40s">This man is a beast. He just dunked on everyone, and went insane. Anytime someone went to block him, all they would get is all 345 pounds and 7' 4" of him in their face, it's disgusting.</a>
 <a href="https://pbs.twimg.com/media/F3cI7-rXUAE989L.jpg"></a>
 ---
 <li><h3>Kevin Durant (Easy Money Sniper, Durantula, The Slim Reaper)</h3></li>
    <a href="https://www.youtube.com/watch?v=tTsXG8LXSF8">[This dude was crazy. He's built like slenderman, he won 2 rings, and he's one of the best to ever do it. He's just got to make sure he wears the right shoes. (IYKYK)]</a>
-   ![](https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg)
+   <a href="(https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg"></a>
 ---
 <li><h3>Kyrie Irving (Uncle Drew, Ankletaker, World B. Flat, Kai)</h3></li>
    <a href="https://www.youtube.com/watch?v=ZNZq76uKz8I">Absolutely impeccable handles. This is what I dream of achieving someday.</a>
