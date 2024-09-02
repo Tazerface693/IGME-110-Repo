@@ -1,4 +1,7 @@
-
+<!DOCTYPE html>
+<html>
+<head>
+<meta charset="utf-8">
 
 <h1>The Top 10 Most Entertaining Players to Watch In Their Prime</h1>
 --- 
