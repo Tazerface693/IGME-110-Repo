@@ -31,7 +31,7 @@
 ---
 <li><h3>Kevin Durant (Easy Money Sniper, Durantula, The Slim Reaper)</h3></li>
    <a href="https://www.youtube.com/watch?v=tTsXG8LXSF8">[This dude was crazy. He's built like slenderman, he won 2 rings, and he's one of the best to ever do it. He's just got to make sure he wears the right shoes. (IYKYK)]</a>
-   <img src="(https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg">
+   <img src="https://jeffpearlman.com/wp-content/uploads/2020/07/f9c9b-screen-shot-2016-07-04-at-10.34.23-am.jpg">
 ---
 <li><h3>Kyrie Irving (Uncle Drew, Ankletaker, World B. Flat, Kai)</h3></li>
    <a href="https://www.youtube.com/watch?v=ZNZq76uKz8I">Absolutely impeccable handles. This is what I dream of achieving someday.</a>
